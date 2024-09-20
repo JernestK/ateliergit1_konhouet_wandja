@@ -1,1 +1,0 @@
-# ateliergit1_konhouet_wandja
